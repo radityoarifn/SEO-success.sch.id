@@ -1,1 +1,1 @@
-# SEO-success.sch.id
+# success.sch.id
